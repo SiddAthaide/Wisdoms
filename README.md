@@ -1,0 +1,2 @@
+# Wisdoms
+Wisdoms
